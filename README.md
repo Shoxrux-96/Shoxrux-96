@@ -67,5 +67,5 @@
 
 ## 📫 Contact
 
-- **Telegram:** [@Shoxrux_96](https://t.me/Shoxrux_96)
-- **Email:** shoxrux@example.com
+- **Telegram:** [@shoxruxudoynazarov](https://t.me/shoxruxudoynazarov)
+- **Email:** [xudoynazarov9695@gmail.com](mailto:xudoynazarov9695@gmail.com)
